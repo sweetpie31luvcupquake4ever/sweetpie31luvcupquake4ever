@@ -1,5 +1,6 @@
-## Hi there 👋
-
+## haii(^///^)
+<img width="735" height="497" alt="image" src="https://github.com/user-attachments/assets/0ba4bc96-fa75-4438-bc95-31985fa47373" />
+check out my strawpage thxxx
 <!--
 **sweetpie31luvcupquake4ever/sweetpie31luvcupquake4ever** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
